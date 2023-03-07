@@ -1,6 +1,6 @@
 ## hi there, Nice to meet you
 
-sou o ivan!
+# sou o ivan!
 
 ❤️17 anos ❤️
 
