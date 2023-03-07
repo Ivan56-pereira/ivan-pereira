@@ -8,5 +8,6 @@ sou o ivan!
 
 ❤️apaixonado por programacao em python❤️
 
-##
+![MilkAndMochaSleepGIF (2)](https://user-images.githubusercontent.com/125929359/223293054-867b1dab-6135-426f-9f68-5ee772ba12cd.gif)
+
 
